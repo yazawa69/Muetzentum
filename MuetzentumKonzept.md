@@ -35,6 +35,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >
 ## Heilslehren
 > ### Second-World-Theory
+>Um eins mit dem Garn zu werden gibt der Garn uns botschaften
+>er offenbart sich uns durch verschiedene Methoden: Träume, vorhersehungen, Drogen, Halluzinationen.
+>Das Ziel ist es, dass alles in dieser Welt eins mit dem Garn wird, um wieder in es zurückkehren zu können.
 >
 ## Symbolsystem
 >
@@ -63,7 +66,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Kriege zwischen primitiven Formen und erweiterten Konzepten.<br>
 >Äonen vergingen und das Garn wuchs in seiner Fülle<br>
 >Gleichwohl tief in seinen Verstrickungen begann eine dunkle Präsenz zu gedeihen<br>
->Sie war zuerst unscheinbar und versteckte sich hinter dem Flammental von Agohin Ruin<br>
+>Sie war zuerst unscheinbar und versteckte sich hinter dem urweltlichen Flammental von Agohin Roin<br>
 >Nichtsdestoweniger erkannte sie, wie das Garn einst auch, ihre Getrenntheit.<br>
 >Als sie groß genug war verschlang sie die verstohlene Mogwa.<br>
 >Mit ihrem Wissen gelang es eine Instanz, des Ewigen Einen im Garn zu schaffen, um ihn aufzulösen.<br>
@@ -72,5 +75,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >
 
 <br>
+
+## Moral code
 
 
