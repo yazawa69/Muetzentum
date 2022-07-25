@@ -27,11 +27,11 @@ Look it up yourself: https://www.markdownguide.org/basic-syntax<br>
 test<br>
 alles wird gut in der muetze, denn sie wird dir die hoffnung der welt schenken<br>
 Ich will FF14 spielen<br>
-First of all through the yarn, all things are possible, so jot that down.<br>
+First of all, through the yarn, all things are possible, so jot that down.<br>
 <br>
 
 ## Ontologie
->Idealismus
+>Idealismus maybe
 >
 ## Heilslehren
 > ### Second-World-Theory
@@ -46,21 +46,31 @@ First of all through the yarn, all things are possible, so jot that down.<br>
 ## Entstehungsmythos
 >Am Anfang war das Ewige Eine, und es war alles.<br>
 >Darin erwachte das Garn, und wurde sich seiner Getrenntheit des einen bewusst.<br>
->Das Garn sah das dies nicht gut war.<br>
->All so schuff das Garn indem es sich verstrickte.<br>
+>Das Garn sah, dass dies nicht gut war.<br>
+>All so, schuff das Garn, indem es sich verstrickte.<br>
 >Zuerst strickte es die Änderung.<br>
->Das machte die vielen möglich.<br>
+>Das machte den Unterschied möglich.<br>
 >Danach schuff es die Eigenschafften und die Formen.<br>
 >Und überlagerte die Eigenschafften auf die Formen.<br>
->So entstanden erste Instanzen aller Art.<br>
+>So entstanden die ersten Aruwerim aller Art.<br>
 >Fröhliche, Leise, Bunte, Wütende, Mächtige, Dunkle.<br>
 >Alte, Betrübte, Gemeine, Sanfte, Große, Kleine.<br>
->Doch es waren noch weitaus mehr, die auf dem Garne tanzten.<br>
+>Aber sie waren weitaus mehr in ihrer Gesamtheit.<br>
 >Mit ihnen war das Garn im Einklang.<br>
+>Die Aruwerim tanzten auf dem Garn und erzählten ihm Geschichten.<br>
+>Schwebenden Prismen, die über die Ebene gleiten, brechen auseinander nur um wieder aufgebaut zu werden.<br>
+>Dimensionen verschwanden und waren am Rande der Zeit wiedergefunden.<br>
+>Kriege zwischen primitiven Formen und erweiterten Konzepten.<br>
+>Äonen vergingen und das Garn wuchs in seiner Fülle<br>
+>Gleichwohl tief in seinen Verstrickungen begann eine dunkle Präsenz zu gedeihen<br>
+>Sie war zuerst unscheinbar und versteckte sich hinter dem Flammental von Agohin Ruin<br>
+>Nichtsdestoweniger erkannte sie, wie das Garn einst auch, ihre Getrenntheit.<br>
+>Als sie groß genug war verschlang sie die verstohlene Mogwa.<br>
+>Mit ihrem Wissen gelang es eine Instanz, des Ewigen Einen im Garn zu schaffen, um ihn aufzulösen.<br>
+>Doch der Garn sah dies und schuff eine neue Welt.<br>
+>Hierin war die Präsenz nun mit dem Ewig Einen gebunden und konnte nur noch durch das Gefängnis der Materie agieren.<br>
 >
->etc. etc. dann kommt irgendein bösewicht, der mehr will, als nur ein teil des garns zu sein und schafft es
->irgendwie das Ewige Eine(das nichts, das void, das unbewusste) als instanz in dem Garn zu erschaffen, das Ewige Eine 
->droht alles zu verschlingen doch der Garn schafft es dies zu überwinden und sperrt alle formen in Materie ein,
->wodurch sie physikalische Grenzen bekommen and so on and so on.<br>
+
+<br>
 
 
