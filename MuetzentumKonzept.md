@@ -58,7 +58,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Aber sie waren weitaus mehr in ihrer Gesamtheit.<br>
 >Mit ihnen war das Garn im Einklang.<br>
 >Die Aruwerim tanzten auf dem Garn und erzählten ihm Geschichten.<br>
->Schwebenden Prismen, die über die Ebene gleiten, brechen auseinander nur um wieder aufgebaut zu werden.<br>
+>Schwebende Prismen, die über die Ebene gleiten, brechen auseinander nur um wieder aufgebaut zu werden.<br>
 >Dimensionen verschwanden und waren am Rande der Zeit wiedergefunden.<br>
 >Kriege zwischen primitiven Formen und erweiterten Konzepten.<br>
 >Äonen vergingen und das Garn wuchs in seiner Fülle<br>
@@ -68,7 +68,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Als sie groß genug war verschlang sie die verstohlene Mogwa.<br>
 >Mit ihrem Wissen gelang es eine Instanz, des Ewigen Einen im Garn zu schaffen, um ihn aufzulösen.<br>
 >Doch der Garn sah dies und schuff eine neue Welt.<br>
->Hierin war die Präsenz nun mit dem Ewig Einen gebunden und konnte nur noch durch das Gefängnis der Materie agieren.<br>
+>Hierin waren nun alle Formen gebunden und konnten nur noch durch das Gefängnis der Materie agieren.<br>
 >
 
 <br>
