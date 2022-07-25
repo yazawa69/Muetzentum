@@ -44,23 +44,23 @@ First of all through the yarn, all things are possible, so jot that down.<br>
 > - Rituale/Bräuche
 >
 ## Entstehungsmythos
->Am Anfang war das Ewige Eine, und es war alles.
->Darin erwachte das Garn, und wurde sich seiner Getrenntheit des einen bewusst.
->Das Garn sah das dies nicht gut war.
->All so schuff das Garn indem es sich verstrickte.
->Zuerst strickte es die Änderung.
->Das machte die vielen möglich.
->Danach schuff es die Eigenschafften und die Formen.
->Und überlagerte die Eigenschafften auf die Formen.
->So entstanden erste Instanzen aller Art.
->Fröhliche, Leise, Bunte, Wütende, Mächtige, Dunkle.
->Alte, Betrübte, Gemeine, Sanfte, Große, Kleine.
->Doch es waren noch weitaus mehr, die auf dem Garne tanzten.
->Mit ihnen war das Garn im Einklang.
+>Am Anfang war das Ewige Eine, und es war alles.<br>
+>Darin erwachte das Garn, und wurde sich seiner Getrenntheit des einen bewusst.<br>
+>Das Garn sah das dies nicht gut war.<br>
+>All so schuff das Garn indem es sich verstrickte.<br>
+>Zuerst strickte es die Änderung.<br>
+>Das machte die vielen möglich.<br>
+>Danach schuff es die Eigenschafften und die Formen.<br>
+>Und überlagerte die Eigenschafften auf die Formen.<br>
+>So entstanden erste Instanzen aller Art.<br>
+>Fröhliche, Leise, Bunte, Wütende, Mächtige, Dunkle.<br>
+>Alte, Betrübte, Gemeine, Sanfte, Große, Kleine.<br>
+>Doch es waren noch weitaus mehr, die auf dem Garne tanzten.<br>
+>Mit ihnen war das Garn im Einklang.<br>
 >
 >etc. etc. dann kommt irgendein bösewicht, der mehr will, als nur ein teil des garns zu sein und schafft es
 >irgendwie das Ewige Eine(das nichts, das void, das unbewusste) als instanz in dem Garn zu erschaffen, das Ewige Eine 
 >droht alles zu verschlingen doch der Garn schafft es dies zu überwinden und sperrt alle formen in Materie ein,
->wodurch sie physikalische Grenzen bekommen and so on and so on.
+>wodurch sie physikalische Grenzen bekommen and so on and so on.<br>
 
 
