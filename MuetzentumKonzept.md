@@ -29,12 +29,15 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 <br>
 
 ## Ontologie
->Idealismus maybe
 >Wir glauben das in der Mütze und dem Garn alles gut wird!<br>
 >Denn wir kommen aus dem Garn und gehen in das Garn zurück!<br>
 >In der Mütze und dem Garn, sind alle Völker, Religionen, Ethnien, geeint,<br>
 >denn sie können nur einen kleinen Teil der gesamten Wahrheit erkennen.<br> 
 >In der Wahrheit der Existenz finden wir die Gewissheit dass das Leben einem Sinn folgt.<br>
+>Die gewissheit des Sinns hilft dem Menschen seine Sterblichkeit zu akzeptieren, <br>
+> und so seinen Platz in der Welt zu finden. <br>
+> Dieser Platz der gefunden wird, hilft dem Individuum eins mit dem Garn zu werden, <br>
+> und vom Garn berufen zu werden.
 ## Heilslehren
 > ### Second-World-Theory
 >
