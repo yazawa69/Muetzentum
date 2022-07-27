@@ -48,10 +48,12 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >
 >
 ## Kultus
-> - Umfasst die gesamtheit religiöser Handlungen.
-> - Rituale/Bräuche
+> ### Umfasst die gesamtheit religiöser Handlungen.
+> - Rituale/Bräuche:
+> - Ränge/Titel:
 >
 ## Entstehungsmythos
+> ###### Der Untergang
 >Am Anfang war das Ewige Eine, und es war alles.<br>
 >Darin erwachte das Garn, und wurde sich seiner Getrenntheit des einen bewusst.<br>
 >Das Garn sah, dass dies nicht gut war.<br>
