@@ -12,7 +12,7 @@ Linebreaks can be done with two spaces at the end of a line, but please use the 
 - and you can make an unordered list,
 - with a "- " before the line.
 
-There are also oredered lists and some other useful things<br>
+There are also ordered lists and some other useful things<br>
 Look it up yourself: https://www.markdownguide.org/basic-syntax<br>
 <br>
 <br>
@@ -80,9 +80,17 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Doch der Garn sah dies und schuff eine neue Welt.<br>
 >Hierin waren nun alle Formen gebunden und konnten nur noch durch das Gefängnis der Materie agieren.<br>
 >
+>In dieser Welt ist unser Universum vor 30 Milliarden Jahren entstanden
+>
+>
 
 <br>
 
 ## Moral code
+>Folge uns nicht.
+>Dies ist weder Bewegung, noch neues System.
+>Folge nicht uns, sondern nur dir selbst.
+>Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.
+>So wird der Wille des Garns erfüllt.
 
 
