@@ -51,6 +51,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 > ### Umfasst die gesamtheit religiöser Handlungen.
 > - Rituale/Bräuche:
 > - Ränge/Titel:
+> - - Bruder/Schwester der Mütze
 >
 ## Entstehungsmythos
 > ###### Der Untergang
@@ -87,7 +88,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 <br>
 
 ## Moral code
->Folge uns nicht.
+>Folge uns nicht.<br>
 >Dies ist weder Bewegung, noch neues System.<br>
 >Folge nicht uns, sondern nur dir selbst.<br>
 >Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.<br>
