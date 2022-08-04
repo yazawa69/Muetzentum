@@ -88,9 +88,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 
 ## Moral code
 >Folge uns nicht.
->Dies ist weder Bewegung, noch neues System.
->Folge nicht uns, sondern nur dir selbst.
->Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.
->So wird der Wille des Garns erfüllt.
+>Dies ist weder Bewegung, noch neues System.<br>
+>Folge nicht uns, sondern nur dir selbst.<br>
+>Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.<br>
+>So wird der Wille des Garns erfüllt.<br>
 
 
