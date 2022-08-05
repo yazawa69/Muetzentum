@@ -40,9 +40,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 > und vom Garn berufen zu werden.
 ## Heilslehren
 > ### Second-World-Theory
->Um eins mit dem Garn zu werden gibt der Garn uns botschaften
->er offenbart sich uns durch verschiedene Methoden: Träume, vorhersehungen, Drogen, Halluzinationen.
->Das Ziel ist es, dass alles in dieser Welt eins mit dem Garn wird, um wieder in es zurückkehren zu können.
+>Um eins mit dem Garn zu werden gibt der Garn uns botschaften,
+>er offenbart sich uns durch verschiedene Methoden: Träume, Vorhersehungen, Drogen, Halluzinationen.
+>Das Ziel ist es, dass alles in dieser Welt eins mit dem Garn wird, um wieder in den Garn zurückkehren zu können.
 >
 ## Symbolsystem
 >
@@ -50,8 +50,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 ## Kultus
 > ### Umfasst die gesamtheit religiöser Handlungen.
 > - Rituale/Bräuche:
+>   - Am 05.08.2022 ist unser Bruder Fabian im Aquari auferstanden. Dieses Wunder muss durch einen Feiertag gewürdigt werden.
 > - Ränge/Titel:
-> - - Bruder/Schwester der Mütze
+>   - Bruder/Schwester der Mütze
 >
 ## Entstehungsmythos
 > ###### Der Untergang
