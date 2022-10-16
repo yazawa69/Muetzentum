@@ -51,6 +51,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 > ### Umfasst die gesamtheit religiöser Handlungen.
 > - Rituale/Bräuche:
 >   - Am 05.08.2022 ist unser Bruder Fabian im Aquari auferstanden. Dieses Wunder muss durch einen Feiertag gewürdigt werden.
+>   - Jedes Jahr wird ein Festival stattfinden, bei dem unter anderem jede Nation seine Armee anmelden kann, diese dann unter <br>
+>       strengen Regeln und Bedingungen gegen die anderen Armeen antreten kann. Denn der kurze Frieden ist besser als der Lange. <br>
+>       Was mit dem Gewinner passiert/ mit Nationen die nicht teilnehmen muss noch geklärt werden. <br>
 > - Ränge/Titel:
 >   - Bruder/Schwester der Mütze
 >
@@ -79,7 +82,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Nichtsdestoweniger erkannte sie, wie das Garn einst auch, ihre Getrenntheit.<br>
 >Als sie groß genug war verschlang sie die verstohlene Mogwa.<br>
 >Mit ihrem Wissen gelang es eine Instanz, des Ewigen Einen im Garn zu schaffen, um ihn aufzulösen.<br>
->Doch der Garn sah dies und schuff eine neue Welt.<br>
+>Doch das Garn sah dies und schuff eine neue Welt.<br>
 >Hierin waren nun alle Formen gebunden und konnten nur noch durch das Gefängnis der Materie agieren.<br>
 >
 >In dieser Welt ist unser Universum vor 30 Milliarden Jahren entstanden
@@ -93,6 +96,19 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Dies ist weder Bewegung, noch neues System.<br>
 >Folge nicht uns, sondern nur dir selbst.<br>
 >Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.<br>
+>So wird der Wille des Garns erfüllt.<br>
+>
+>Jede weitere Religion ist nur ein Bruchstück aus der Lehre des Garns,<br> 
+>sie verkünden alle die Botschafft des Garns, <br>
+>doch versagen dabei das gesamte Bild der Realität abzuzeichnen. <br>
+>Erkenne die Verbindung zwischen allen Religionen.<br>
+>So wird der Wille des Garns erfüllt.<br>
+>
+>Wenn du verstehst was das Garn wirklich ist,<br>
+>wird es für dich psychologisch unmöglich sein das Garn abzulehnen.<br>
+>Wenn du einen Groll gegen das Garn hegst, ist es nicht das echte Garn,<br>
+>sondern ein Abbild, das du von dem Garn in deinem Herzen trägst.<br>
+>Überkomme und verfeiner dieses Abbild.<br>
 >So wird der Wille des Garns erfüllt.<br>
 
 
