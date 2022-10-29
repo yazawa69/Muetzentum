@@ -38,6 +38,17 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 > und so seinen Platz in der Welt zu finden. <br>
 > Dieser Platz der gefunden wird, hilft dem Individuum eins mit dem Garn zu werden, <br>
 > und vom Garn berufen zu werden.
+>
+>Wir glauben an eine idealistische Welt im ontologischen Sinne, also eine monistische Welt,<br>
+>deren Grundsubstanz aus Geist/Mind/Seele besteht.<br>
+>Vielleicht ist die Große Mütze nicht "real", jedoch durch das Pflanzen unserer Idee in dem<br>
+>Bewusstsein der Menschheit machen wir sie real.<br>
+>Die Lehren der Mütze werden langsam gedeihen und heranwachsen bis ihre Wurzeln so fest<br>
+>in den Köpfen der Menschen verankert sind, dass nur ein stärkeres Unkraut die Mütze vertreiben kann.<br>
+>Wir gebären einen Gott, der dazu bestimmt ist uns aus der Bedeutungskrise herauszuführen.<br>
+>Nicht durch Rachsucht, einfache Versprechen oder einer zweiten Welt,<br>
+>sondern durch eine Geschichte, die uns alle verbindet.<br>
+>
 ## Heilslehren
 > ### Second-World-Theory
 >Um eins mit dem Garn zu werden gibt der Garn uns botschaften,
