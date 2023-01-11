@@ -48,6 +48,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Wir gebären einen Gott, der dazu bestimmt ist uns aus der Bedeutungskrise herauszuführen.<br>
 >Nicht durch Rachsucht, einfache Versprechen oder einer zweiten Welt,<br>
 >sondern durch eine Geschichte, die uns alle verbindet.<br>
+>Die Diversifikation der Geschichten ist unterhaltend, aber verwirrend (no pun intended)<br>
+>Am Ende erzählt jede Geschichte immerwieder diesselben Archetypischen Mythen<br>
+>Die Synthese der Geschichten wird uns näher an die Mütze führen.<br>
 >
 ## Heilslehren
 > ### Second-World-Theory
@@ -121,5 +124,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >sondern ein Abbild, das du von dem Garn in deinem Herzen trägst.<br>
 >Überkomme und verfeiner dieses Abbild.<br>
 >So wird der Wille des Garns erfüllt.<br>
+>
+>
 
 
