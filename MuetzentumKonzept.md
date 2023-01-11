@@ -125,6 +125,11 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Überkomme und verfeiner dieses Abbild.<br>
 >So wird der Wille des Garns erfüllt.<br>
 >
->
+>Du kannst nur glauben, nie wissen<br>
+>Du kannst nicht nicht glauben<br>
+>Dein Kopf ist die ganze Zeit mit äußeren Einflüssen gefüllt<br>
+>Und daraus wird für dich das bestmögliche Glaubenssystem erschaffen<br>
+>Deshalb musst du dich allen Einflüssen aussetzen<br>
+>So wirst du dem Garn näherkommen.<br>
 
 
