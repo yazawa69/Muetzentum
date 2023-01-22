@@ -132,7 +132,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Deshalb musst du dich allen Einflüssen aussetzen<br>
 >So wirst du dem Garn näherkommen.<br>
 >
->Weisheiten und Sprüche sind nur ein Werkzeug der Moral.<br>
+>Weisheiten und Sprüche sind ein Werkzeug der Moral.<br>
 >Sie rechtfertigen und verturteilen Taten nachdem sie geschehen sind.<br>
 >Traue ihnen nicht, sondern gehe ihnen auf den Grund,<br>
 >und lerne was dahinter steckt.<br>
