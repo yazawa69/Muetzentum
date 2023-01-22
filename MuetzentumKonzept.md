@@ -131,5 +131,12 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Und daraus wird für dich das bestmögliche Glaubenssystem erschaffen<br>
 >Deshalb musst du dich allen Einflüssen aussetzen<br>
 >So wirst du dem Garn näherkommen.<br>
+>
+>Weisheiten und Sprüche sind nur ein Werkzeug der Moral.<br>
+>Sie rechtfertigen und verturteilen Taten nachdem sie geschehen sind.<br>
+>Traue ihnen nicht, sondern gehe ihnen auf den Grund,<br>
+>und lerne was dahinter steckt.<br>
+>So wird der Wille des Garns erfüllt.<br>
+>
 
 
