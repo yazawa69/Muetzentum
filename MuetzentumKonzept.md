@@ -70,8 +70,8 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >       Was mit dem Gewinner passiert/ mit Nationen die nicht teilnehmen muss noch geklärt werden. <br>
 > - Ränge/Titel:
 >   - Bruder/Schwester der Mütze
-> - Gebäude:
->   - Wir werden Pyramidenhäuser beien, weil die fucking awsome sind. und es wird fliegende pyramiden geben,<br>
+> - Heilige Gebäude:
+>   - Wir werden Pyramidenhäuser bauen, weil die fucking awsome sind. und es wird fliegende pyramiden geben,<br>
 >       wie wir sie in der Luft halten? Wir hängen sie an den Mond.
 >
 ## Entstehungsmythos
