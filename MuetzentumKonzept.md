@@ -73,7 +73,8 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 > - Heilige Gebäude:
 >   - Wir werden Pyramidenhäuser bauen, weil die fucking awsome sind. und es wird fliegende pyramiden geben,<br>
 >       wie wir sie in der Luft halten? Wir hängen sie an den Mond.
->
+> - Heilige Kleidung:
+>	- Desto höher der Rang eines Gläubigen desto mehr und desto größere Mützen trägt er oder sie.	
 ## Entstehungsmythos
 > ###### Der Untergang
 >Am Anfang war das Ewige Eine, und es war alles.<br>
