@@ -142,5 +142,10 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >und lerne was dahinter steckt.<br>
 >So wird der Wille des Garns erfüllt.<br>
 >
+>Die Wörter, die du verwendest bestimmen wie du denkst.<br>
+>Ihre Konnotationen bauen Gefängnisse um deine Ideen.<br>
+>Versuche aus der Kulturellen Grammatik auszubrechen.<br>
+>So wird der Wille des Garns erfüllt<br>
+>
 
 
