@@ -129,10 +129,10 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Dort, im Reich der Sterne, erblühte eine rasch wachsende Zivilisation, die den Typ III auf der Kardashow-Skala erreichte.<br>
 >Sie sind die Protomenschen.<br>
 >Jedoch sind sie mit ihrer Technologie vor langem an eine Grenze gestoßen, denn das intergalaktische Reisen ist ein Problem das selbst die Protomenschen noch überwinden müssen.<br>
->Und da die meisten Sterne in ihrer Galaxie erloschen sind geht ihnen die Zeit aus.<br>
->Also setzten sich die wahnsinnigsten Wissenschaftler zusammen und bauten aus einem gigantischen Planeten, nahe des Zentrums ihrer Galaxie,<br>
->einen Superrechner, dessen äußere hülle so kalt war, dass dort auch Quantencomputer zu einsatz kamen, die mit der Energie des Quasars gespeist wurden.<br>
->Darauf liefen die einhundert Simulationen. Ein Experiment bei dem sie ihr eigenes Universum, vom anbeginn ihrer bekannten Zeit hundert mal in beschleunigter Geschwindigkeit simulierten, um zu beobachten ob eine andere Zivilisation sie aus ihrer Klemme befreien könne.<br> 
+>Und da die meisten Sterne in ihrer Galaxie erloschen, geht ihnen die Zeit aus.<br>
+>Also setzten sich die wahnsinnigsten Wissenschaftler zusammen und bauten aus einem gigantischen Planeten, nahe des Zentrums ihrer Galaxie, einen Superrechner, dessen äußere hülle so kalt war, dass dort auch Quantencomputer zu einsatz kamen, die mit der Energie des Quasars gespeist wurden.<br>
+>Darauf liefen die einhundert Simulationen.<br> 
+>Ein Experiment bei dem sie ihr eigenes Universum, vom anbeginn ihrer bekannten Zeit hundert mal in beschleunigter Geschwindigkeit simulierten, um zu beobachten ob eine andere Zivilisation sie aus ihrer Klemme befreien könne.<br> 
 >
 >Wir, die Menschen auf der Erde, sind Experiment 93. Das ist unser Schicksal.<br>
 >
