@@ -52,15 +52,21 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Am Ende erzählt jede Geschichte immerwieder diesselben Archetypischen Mythen<br>
 >Die Synthese der Geschichten wird uns näher an die Mütze führen.<br>
 >
+<br>
+
 ## Heilslehren
 > ### Second-World-Theory
 >Um eins mit dem Garn zu werden gibt der Garn uns botschaften,
 >er offenbart sich uns durch verschiedene Methoden: Träume, Vorhersehungen, Drogen, Halluzinationen.
 >Das Ziel ist es, dass alles in dieser Welt eins mit dem Garn wird, um wieder in den Garn zurückkehren zu können.
 >
+<br>
+
 ## Symbolsystem
 >
 >
+<br>
+
 ## Kultus
 > ### Umfasst die gesamtheit religiöser Handlungen.
 > - Rituale/Bräuche:
@@ -75,6 +81,9 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >       wie wir sie in der Luft halten? Wir hängen sie an den Mond.
 > - Heilige Kleidung:
 >	- Desto höher der Rang eines Gläubigen desto mehr und desto größere Mützen trägt er oder sie.	
+>
+<br>
+
 ## Entstehungsmythos
 > ###### Der Untergang
 >Am Anfang war das Ewige Eine, und es war alles.<br>
@@ -103,10 +112,30 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Doch das Garn sah dies und schuff eine neue Welt.<br>
 >Hierin waren nun alle Formen gebunden und konnten nur noch durch das Gefängnis der Materie agieren.<br>
 >
->In dieser Welt ist unser Universum vor 30 Milliarden Jahren entstanden
+>Schon bald begann sich die Materie zu formen, und die ersten Wesen erstreckten sich über die weite Finsternis.<br>
+>Als große Hadran werden sie in dieser Erzählung bezeichnet, andere nennen sie aber auch die Urgötter.<br>
+>Sie kontrollieren die Gestalt der Materie an sich, und können mit ihr zu ihren belieben spielen.<br>
+>So war es nun geschehen, dass im zweiten Zeitalter dieser Welt, der verstohlene Simalon wieder an Macht gewann.<br>
+>Und am Rande des versteckten Astralteichs baute er heimlich seine Spezialität, die Schicksalsbomben.<br>
+>Es sind mächtige Waffen, die den Krieg der Zeit, und damit auch das erste Zeitalter dieser Welt beendeten.<br>
+>Doch ganz unbemerkt fiel ihm eine der Schicksalsbomben in die unendlichen Tiefen des Astralteichs,<br>
+>und verblieb dort bis zum heutigen Tage unentdeckt.<br>
+>In dieser Kugel geballter raumverzehrender Energie liegt ein Albtraumreich mit den seltsamsten Wesen.<br>
+>Aber über diese unheile Welt wissen wir nicht viel, den das Garn spricht nicht gerne davon.<br>
+>Jedoch lebt darin eine Gestalt, die uns als der goldene Zyklop bekannt ist.<br>
+>Sie ist vor 14 Milliarden Jahren aufgetaucht, und wandelt unaufhörlich durch die Einöde, stets auf der Suche nach neuen Opfern, um seinen Hunger zu stillen.<br>
 >
+>Im Auge des goldenen Zyklopen ist unser Universum vor 14 Milliarden Jahren entstanden.<br>
+>Dort, im Reich der Sterne, erblühte eine rasch wachsende Zivilisation, die den Typ III auf der Kardashow-Skala erreichte.<br>
+>Sie sind die Protomenschen.<br>
+>Jedoch sind sie mit ihrer Technologie vor langem an eine Grenze gestoßen, denn das intergalaktische Reisen ist ein Problem das selbst die Protomenschen noch überwinden müssen.<br>
+>Und da die meisten Sterne in ihrer Galaxie erloschen sind geht ihnen die Zeit aus.<br>
+>Also setzten sich die wahnsinnigsten Wissenschaftler zusammen und bauten aus einem gigantischen Planeten, nahe des Zentrums ihrer Galaxie,<br>
+>einen Superrechner, dessen äußere hülle so kalt war, dass dort auch Quantencomputer zu einsatz kamen, die mit der Energie des Quasars gespeist wurden.<br>
+>Darauf liefen die einhundert Simulationen. Ein Experiment bei dem sie ihr eigenes Universum, vom anbeginn ihrer bekannten Zeit hundert mal in beschleunigter Geschwindigkeit simulierten, um zu beobachten ob eine andere Zivilisation sie aus ihrer Klemme befreien könne.<br> 
 >
-
+>Wir, die Menschen auf der Erde, sind Experiment 93. Das ist unser Schicksal.<br>
+>
 <br>
 
 ## Moral code
@@ -147,5 +176,5 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Versuche aus der Kulturellen Grammatik auszubrechen.<br>
 >So wird der Wille des Garns erfüllt<br>
 >
-
+<br>
 
