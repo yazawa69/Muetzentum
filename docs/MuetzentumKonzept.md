@@ -62,7 +62,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >
 <br>
 
-## Symbolsystem
+## Symbolsystem/Semiotik
 >
 >
 <br>
@@ -140,7 +140,7 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 
 ## Moral code
 >Folge uns nicht.<br>
->Dies ist weder Bewegung, noch neues System.<br>
+>Dies ist weder eine Bewegung, noch ein neues System.<br>
 >Folge nicht uns, sondern nur dir selbst.<br>
 >Wenn du dich selbst wahrnimmst, wirst du im Enklang mit dem Garn handeln können.<br>
 >So wird der Wille des Garns erfüllt.<br>
@@ -176,5 +176,11 @@ First of all, through the yarn, all things are possible, so jot that down.<br>
 >Versuche aus der Kulturellen Grammatik auszubrechen.<br>
 >So wird der Wille des Garns erfüllt<br>
 >
+>...<br>
+>
+>Dies ist der letzte Wille des Garns:<br>
+>Es gibt keine moralischen Absolutheiten.<br>
+>Jedes moralische Problem muss für sich betrachtet und interpretiert werden.<br>
+>Indem wir es immer wieder im öffentlichen Diskurs abwägen wird der Wille des Garns erfüllt.<br>
 <br>
 
